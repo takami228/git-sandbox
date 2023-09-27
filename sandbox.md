@@ -14,4 +14,4 @@ tetete
 
 aiueo
 
-kakikukeko
+kakikukekosa
